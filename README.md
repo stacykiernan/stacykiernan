@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on new experiences
 - 📫 How to reach me stacykiernan@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I spend most of my free time tackling various home improvement projects and love buying new power tools.
+- ⚡ Fun fact: I enjoy home improvement projects and buying new power tools.
 
 <!---
 stacykiernan/stacykiernan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
